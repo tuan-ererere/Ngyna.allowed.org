@@ -1,0 +1,1 @@
+# Ngyna.allowed.org
